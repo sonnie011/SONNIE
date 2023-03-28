@@ -1,2 +1,2 @@
-# SONNIE CURRENTLY LEARNING HARD THINGS 
-COMING SOON 
+# sonnie curently learning Hard things
+Comming soon
